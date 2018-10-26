@@ -1,6 +1,6 @@
 # Hello_World
 
-I am Jung (pronounced Juneeeeee~). 
+I am Jung (pronounced Juneeeeee~). My family name is Xue (pronounced schuer or share), my grandfather's initial is, XXX, don't mess with him he will go Vin Diesel on you.  
 
 I will turn 24 in 2018. I am from New Zealand.
 
