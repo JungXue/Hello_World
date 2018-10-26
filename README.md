@@ -10,6 +10,6 @@ That is pretty much everything about me, a poor and incompetent uni student who 
 
 Please be Friendly with me. I love you all. 
 
-I wonder what I will become in 10 years, maybe you will see me begging for ciggies on Queen Street and living under Grafton Bridge, or maybe, I actually achieve something good and people actually know me over here. 
+I wonder what I will become in 10 years, maybe I will actually achieve something good and people actually know me over here. 
 
 From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
