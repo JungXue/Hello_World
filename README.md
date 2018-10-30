@@ -12,6 +12,6 @@ Please be Friendly with me. I love you all.
 
 I wonder what I will become in 10 years, maybe I will actually achieve something good and people actually know me over here. 
 
+
 From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
 
-I will send a packet of Tim Tams to first ever person that said hi to me on github, because you are special, no matter where you are. Send you hi message to jxue533@aucklanduni.ac.nz. 
