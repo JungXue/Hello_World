@@ -19,10 +19,10 @@ From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
 
 I am thinking about some other names that I may use, ABSOLUTELY no one actually pronounce my name right, not even my parents, so maybe chaging it to a similar but more readible name may make things easier. :thinking:
 
-| Language  | Name        | Other         | Pronunciation  | Meaning                                   |
-| :-------- |:------------| :-------------|:---------------|:------------------------------------------|
-| Chinese   | **薛子俊**   |  谢军航（闽）  |Xue Zi Jun      |Xue family, Gentle, glorious, Handsome men |
-| English   | Jung Xue    |               |June Share      |                                           |
-| Japanese  | 上薛 俊郎    | さんせ としろう|Toshiro Sanse   |From top of Xue, Wise,  son                     |
-| German    | Jung Schmidt|               |Young Schmidt   |Young, youth                               |
+| Language  | Name        | Other         | Pronunciation  | Meaning                                            |
+| :-------- |:------------| :-------------|:---------------|:---------------------------------------------------|
+| Chinese   | **薛子俊**   |  谢军航（闽）  |Xue Zi Jun      |Xue family, King, Gentleman, glorious, handsome men |
+| English   | Jung Xue    |               |June Share      |                                                    |
+| Japanese  | 上薛 俊郎    | さんせ としろう|Toshiro Sanse   |From top of Xue, wise,  son                         |
+| German    | Jung Schmidt|               |Young Schmidt   |Young, youth, [Schmidt](https://www.imdb.com/title/tt1087833/)|
 
