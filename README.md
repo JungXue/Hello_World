@@ -23,6 +23,6 @@ I am thinking about some other names that I may use, ABSOLUTELY no one actually 
 | :-------- |:------------| :-------------|:---------------|:---------------------------------------------------|
 | Chinese   | **薛子俊**   |  谢军航（闽）  |Xue Zi Jun      |[Xue](https://www.google.co.nz/maps?q=%E8%96%9B%E5%9F%8E%E9%81%97%E5%9D%80&rlz=1C1GCEA_enNZ822NZ822&um=1&ie=UTF-8&sa=X&ved=0ahUKEwjaroDqkb_eAhVOeysKHdWaDLIQ_AUIDigB) family, King, Gentleman, glorious, handsome men |
 | English   | Jung Xue    |               |June Share      |                                                    |
-| Japanese  | 上薛 俊郎    | さんせ としろう|Toshiro Sanse   |From top of Xue, wise,  son                         |
+| Japanese  | 上薛 俊郎    | さんせ としろう|Toshiro Sanse   |From top of Xue, wise, sagacious, son               |
 | German    | Jung Schmidt|               |Young Schmidt   |Young, youth, [Schmidt](https://www.imdb.com/title/tt1087833/)|
 
