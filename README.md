@@ -19,9 +19,9 @@ From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
 
 I am thinking about some other names that I may use, ABSOLUTELY no one actually pronounce my name right, not even my parents, so maybe chaging it to a similar but more readible name may make things easier. :thinking:
 
-|  Language | Name        | other writing | pronounciation |
+|  Language | Name        | other  | pronounciation |
 | :-------- |:------------| :-------------|:---------------|
-| Chinese   | 薛子俊       |               |Xue Zi Jun      |
+| Chinese   | 薛子俊       |  薛军航（闽）  |Xue Zi Jun      |
 | English   | Jung Xue    |               |June Share      |
 | Japanese  | 上薛 俊郎    | さんせ としろう|Toshiro Sanse   |
 | German    | Jung Schmidt|               |Young Schmidt   |
