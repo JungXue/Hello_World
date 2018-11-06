@@ -17,7 +17,7 @@ From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
 
 ---
 
-I am thinking about some other names that I may use, **ABSOLUTELY** no one actually pronounce my name right, not even my parents, so maybe changing it to a similar but more readible name in specific may make things easier. :thinking:
+I am thinking about some other names that I may use, **ABSOLUTELY** no one can actually pronounce my name right, not even my parents, so maybe changing it to a similar but more readible name in specific may make things easier. :thinking:
 
 | Language  | Name        | Other         | Pronunciation  | Meaning                                            |
 | :-------- |:------------| :-------------|:---------------|:---------------------------------------------------|
