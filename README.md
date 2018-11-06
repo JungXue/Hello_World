@@ -19,7 +19,7 @@ From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
 
 I am thinking about some other names that I may use, **ABSOLUTELY** no one can actually pronounce my name right, not even my parents, so maybe changing it to a similar but more readible name in specific languages may make things easier. :thinking:
 
-| Language  | Name        | Other         | Pronunciation  | Meaning                                                      |
+  | Language  | Name        | Other         | Pronunciation  | Attribute                                                      |
 | :-------- |:------------| :-------------|:---------------|:-------------------------------------------------------------|
 | Chinese   | **薛子俊**   | 谢军航(闽), 辉仔(闽), 彪子|Xue Zi Jun      |[Xue](https://www.google.co.nz/maps?q=%E8%96%9B%E5%9F%8E%E9%81%97%E5%9D%80&rlz=1C1GCEA_enNZ822NZ822&um=1&ie=UTF-8&sa=X&ved=0ahUKEwjaroDqkb_eAhVOeysKHdWaDLIQ_AUIDigB) family, King, Gentleman, glorious, handsome men, strong fire |
 | English   | Jung Xue    |               |June Share      |[Carl Jung](https://en.wikipedia.org/wiki/Carl_Jung)          |
