@@ -21,7 +21,7 @@ I am thinking about some other names that I may use, ABSOLUTELY no one actually 
 
 |  Language | Name        | other  | pronounciation |
 | :-------- |:------------| :-------------|:---------------|
-| Chinese   | 薛子俊       |  薛军航（闽）  |Xue Zi Jun      |
+| Chinese   | 薛子俊       |  谢军航（闽）  |Xue Zi Jun      |
 | English   | Jung Xue    |               |June Share      |
 | Japanese  | 上薛 俊郎    | さんせ としろう|Toshiro Sanse   |
 | German    | Jung Schmidt|               |Young Schmidt   |
