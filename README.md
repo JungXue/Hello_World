@@ -1,6 +1,6 @@
 # Hello_World
 
-I am Jung (pronounced Juneeeeee~). My family name is Xue (pronounced schuer or share), my grandfather's initial is, XXX, don't mess with him he will go Vin Diesel on you.  
+I am Jung (pronounced Juneeeeee~). My family name is Xue (pronounced share), my grandfather's initial is, XXX, don't mess with him he will go Vin Diesel on you.  
 
 I will turn 24 in 2018. I am from New Zealand, more specifically from the friendly neighbourhood of Tokoroa.
 
@@ -15,3 +15,11 @@ I wonder what I will become in 10 years, maybe I will actually achieve something
 
 From New Zealand, with Tim tams and love. (○´3｀)ﾉ⌒♡
 
+---
+
+I am thinking about some other names that I may use, ABSOLUTELY no one actually pronounce my name right, not even my parents, so maybe chaging it to a similar but more readible name may make things easier. :thinking:
+
+Chinese name:   薛子俊                    Xue Zi Jun 
+English name:   Jung Xue                 June Share
+Japanese name:  上薛 俊郎  さんせ としろう Toshiro Sanse
+German name:    Jung Schmidt             Young Schmidt
